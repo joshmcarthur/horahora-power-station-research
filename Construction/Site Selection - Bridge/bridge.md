@@ -1,3 +1,5 @@
+![Old Bridge with channel and power house in background](4.jpg)
+
 The Waikato river of 1900 was very different to the river that exists today. Before the many hydro schemes and careful flood management, the river had many more waterfalls and rapids, and was fast flowing and deep. Because of this, the Horahora Rapids have historically been well-used by both Maori and European travellers, due to their comparative narrowness. There is evidence that the location has been used as a crossing point for some time, most likely first bridged by a felled log, and eventually a more elaborate bridge located just below the mid-point of the Rapids.
 
 This location was also quickly identified as the preferred site of Waihi Mining Company's proposed power station, due to the shallowness of the rapids, and the fact that the layout of the channel at that point allowed a water race and power house to be built on an point jutting into the river without the main flow of the river requiring diversion.
